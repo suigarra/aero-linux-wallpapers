@@ -1,2 +1,2 @@
-this is a collection of frutiger aero linux wallpapers all made by me.
+this is a collection of frutiger aero linux wallpapers all made by me (suigarra).
 u can feel free to use it.
